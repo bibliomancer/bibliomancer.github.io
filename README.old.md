@@ -1,1 +1,0 @@
-# bibliomancer.github.io
